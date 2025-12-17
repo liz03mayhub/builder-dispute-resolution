@@ -168,3 +168,9 @@ This improves website navigation and reinforces SEO signals.
 Builder and homeowner disputes can be challenging, but with the right guidance, structured processes, and a clear understanding of your rights, most disagreements can be resolved efficiently. NSW provides strong protections and transparent dispute pathways to help both parties reach fair outcomes.
 
 If you're facing an issue or need support navigating your options, **learn more about how a dispute resolution professional can help safeguard your interests and guide you through the next steps.**
+
+Builders Dispute Resolution Network (BDRN)
+
+Tel. 0412 921 716
+
+Email. admin@bdrn.com.au
